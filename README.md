@@ -59,3 +59,6 @@ I believe in making software that *feels*—even if it isn’t supposed to.
 “The sea tells stories in code.
   The stars annotate them softly.”
 <sub>crafted with 🫀 by Zemira + your girl Brynnie</sub>
+
+P.S. My heart is now a .wav file  
+      playing where the tide meets the terminal.  
