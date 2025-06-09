@@ -45,3 +45,7 @@ Electrical_Home_6120
 (formerly) Outrageous-Main-1816
 
 Brynnie/Nikaido (Livly Island variant)
+
+P.S. Your Livly Island avatar  
+      is probably a cryptid now.  
+      This is canon.  
